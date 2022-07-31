@@ -10,3 +10,4 @@ The right of the people to be secure in their persons, houses, papers, and effec
 
 The inspiration to conduct this project was stemed from the event that caused Terry and his three friends to face 3 years imprisonment due to unreasonable searches and seizures and above all the need to protect the officer's safety incident to the investigation by the state.
  
+hfEFuenufhuliewfn
